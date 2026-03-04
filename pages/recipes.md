@@ -5,6 +5,11 @@
 
 A recipe of sweet, half-moon-shaped dumplings with cherry.
 
+## [Chocolate Mouuse](https://www.recipetineats.com/chocolate-mousse/)
+[Archived Link](https://web.archive.org/web/20250116230327/https://www.recipetineats.com/chocolate-mousse/)
+
+a tranditional, classic french chocolate mousse recipe that makes it just like fine dining restaurants! 
+
 ## [Crustless Quiche with Spinach and Mushrooms](https://www.themediterraneandish.com/mushroom-spinach-crustless-quiche/)
 [Archived Link](https://web.archive.org/web/20240802010738/https://www.themediterraneandish.com/mushroom-spinach-crustless-quiche/)
 
