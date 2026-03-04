@@ -1,5 +1,10 @@
 # Recipes
 
+## [Banana Bread](https://www.allrecipes.com/recipe/20144/banana-banana-bread/)
+[Archived Link](https://web.archive.org/web/20250627235231/https://www.allrecipes.com/recipe/20144/banana-banana-bread/)
+
+ A recipe for the most moist, delicious banan bread there is!
+
 ## [Cherry Vareniki](https://www.sonyasanford.com/recipes/2023/5/30/cherry-vareniki)
 [Archived Link](https://web.archive.org/web/20240129220841/https://www.sonyasanford.com/recipes/2023/5/30/cherry-vareniki)
 
